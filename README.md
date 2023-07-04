@@ -4,3 +4,5 @@
 # The winds blew hard, 
 # Her bow deep down,
 # O blow, my bully boys, blow
+# Soon may the Wellermans come
+# To bring us sugar and tea and rum
